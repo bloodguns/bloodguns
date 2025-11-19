@@ -1,3 +1,4 @@
 ***
-[![IMG-9101.jpg](https://i.postimg.cc/ryJ5nj7G/IMG-9101.jpg)](https://postimg.cc/Yjv4j6rj)
-⠀⠀⠀⠀𓄳 unfunny leftarm pit
+[![Untitled4-20251118215722.png](https://i.postimg.cc/Hsn3bFjc/Untitled4-20251118215722.png)](https://postimg.cc/D8VqTjrn)
+⠀⠀⠀⠀⠀ᖗ𓍢 unfunny leftarm pit
+***
